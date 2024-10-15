@@ -1,5 +1,5 @@
 # Closed-Loop Technology
-_Pioneering Innovation Since 1992_
+_Pioneering Innovation Since 1998_
 
 ## Introduction
 
